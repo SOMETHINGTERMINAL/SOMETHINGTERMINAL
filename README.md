@@ -1,6 +1,13 @@
-### what <sup>would</sup> you <sub>do</sub> <sup>if</sup> I <sup>told</sup> <sub>you</sub> I [***HATE***](https://dont-let-the-dead-bite.carrd.co/#) you <sup>?</sup>
+### what <sup>would</sup> you <sub>do</sub> <sup>if</sup> I <sup>told</sup> <sub>you</sub> I [***HATE***](https://youtu.be/gpylHsdk824?si=71HoLM3mGy3-9wyY) you <sup>?</sup>
 
-Status: AFKing / Playing Pokemon Y
+🗨/☻ : I'm actively online ! 
+
+☾ : I'm doing stuff on the side, but checking my screen.
+
+⦵ : I'm fully AFKing, whisper if needed !
+
+<sup>check my [cardd](https://dont-let-the-dead-bite.carrd.co/#) and sign my [guestbook](https://dontletthedeadbite.123guestbook.com/)</sup>
+↲
 
 
 
