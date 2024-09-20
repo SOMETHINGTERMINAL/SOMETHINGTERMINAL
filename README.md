@@ -8,7 +8,7 @@ HOW DO YALL MAKE GOOD PROFILS ??
 
 ⦵ : I'm fully AFKing, whisper if needed !
 
-<sup>check my [cardd](https://dont-let-the-dead-bite.carrd.co/#) and sign my [atabook](deadbite.atabook.org/)</sup>
+<sup>check my [cardd](https://dont-let-the-dead-bite.carrd.co/#) and sign my [atabook](https://deadbite.atabook.org/)</sup>
 ↲
 
 
